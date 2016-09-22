@@ -1,1 +1,0 @@
-# Tegar-A-Pratama
